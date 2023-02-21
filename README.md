@@ -6,4 +6,5 @@
 
 #### ***Dado el abanico de posibilidades apuntamos al publico en general.**_
 
-![](C:\Users\rgble\OneDrive\Escritorio\Proyecto\Paleta de color.png)
+![](C:\Users\rgble\OneDrive\Escritorio\Proyecto\Logo Cuero.jpg)
+
